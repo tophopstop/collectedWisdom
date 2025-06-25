@@ -8,3 +8,7 @@
 - Always clean the hard to clean utensils like colanders, micro plane and box graters immediately after you use them.  Its super easy to clean them before the food bits fuse to all the nooks and crannies in the device.
 - Never pick up a hot cooking vessel without having a place ready for it to land.
 - Always keep your pot holders and hot mitts in the drawer closest to the stove.
+
+## Kids
+
+- _Your kids are not little versions of you; they are little versions of themselves._ ([citation](https://github.com/merlinmann/wisdom/blob/master/wisdom.md?plain=1#L207))
