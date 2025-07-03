@@ -12,6 +12,7 @@
 ## Kids
 
 - _Your kids are not little versions of you; they are little versions of themselves._ ([citation](https://github.com/merlinmann/wisdom/blob/master/wisdom.md?plain=1#L207))
+- Everything is a phase.
 
 ## Mental Health
 
@@ -20,6 +21,8 @@
 
 ## Running
 
-- My favorite reasons for running:
+- My favorite responses when people ask why I like running:
   - It feels so damn good when I stop.
   - It calms the voices in my head.
+- A lot of days, getting out the door to run is challenge, but when I'm done there are never any regrets about going.
+- Running with music is cheating. I've got documented proof that I run 20% faster listening to _Avenged Sevenfold_.
