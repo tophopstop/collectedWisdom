@@ -17,7 +17,7 @@
 ## Mental Health
 
 - "People go to therapy for those who don't." _Needs attribution._
-- "Above all things, if kindness is your king, you heaven will be yours before you meet your end." _--Dave Matthews, Squirm_
+- "Above all things, if kindness is your king, your heaven will be yours before you meet your end." _--Dave Matthews, Squirm_
 - "Comparison is the thief of joy." [Origin](https://quoteinvestigator.com/2021/02/06/thief-of-joy/)
 
 ## Running
