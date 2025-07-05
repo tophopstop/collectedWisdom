@@ -28,3 +28,4 @@
 - A lot of days, getting out the door to run is challenge, but when I'm done there are never any regrets about going.
 - Running with music is cheating. I've got documented proof that I run 20% faster listening to _Avenged Sevenfold_.
 - "They say you should treat your body like a temple.  I treat mine like a fast-moving dumpster". [Origin](https://theoatmeal.com/comics/running2)
+- "It doesn't matter if you were in the right, if you get hit, you're the one that gets hurt." --Director of Syracuse Mountain Goat Training runs.
