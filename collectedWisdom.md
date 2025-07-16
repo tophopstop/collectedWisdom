@@ -28,8 +28,6 @@
 - A lot of days, getting out the door to run is challenge, but when I'm done there are never any regrets about going.
 - Running with music is cheating. I've got documented proof that I run 20% faster listening to _Avenged Sevenfold_.
 - "They say you should treat your body like a temple.  I treat mine like a fast-moving dumpster". [Origin](https://theoatmeal.com/comics/running2)
-- "It doesn't matter if you were in the right, if you get hit, you're the one that gets hurt." --Director of Syracuse Mountain Goat Training runs.
-- "Pain is temporary, pride lasts forever." "Pain is temporary, quiting lasts forever." [Origin](https://www.reference.com/world-view/meaning-pain-temporary-pride-forever-145ec474bb565627)
 - On the Utica Boilermaker Road Race...
   - Yes, it really is like running through a 9.3 mile long party.
   - Running with actual elite runners and first timers is equally humbling.
@@ -38,3 +36,8 @@
     - A guy wearing sandals.
     - A guy running barefoot.
     - A guy who dribbled a basketball for the entire race.
+- On the Syracuse Mountain Goat:
+  - Feels like the Boilermaker's kid brother, mostly in a good way.
+  - This is the race that taught how to YOLO my way down the big hills.
+  - "It doesn't matter if you were in the right, if you get hit, you're the one that gets hurt." --Director of Syracuse Mountain Goat Training runs.
+  - "Pain is temporary, pride lasts forever." "Pain is temporary, quiting lasts forever." [Origin](https://www.reference.com/world-view/meaning-pain-temporary-pride-forever-145ec474bb565627)
